@@ -1,4 +1,4 @@
-# possible_lifechanging_project_for_the_next_three_months
+# Good project idea that can both ultilize my ability and also make me have a good proflio
 The following is a list of all the possible life changing project that I can give it a try and do my best, which should also possibly appear on my resume as well.
 
 The ideas are following:
